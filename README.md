@@ -1,2 +1,2 @@
-![Header](https://images.steamusercontent.com/ugc/99475435528387724/1B7A3F29C362173A47C0B112DD2CA3D4380273C3/?imw=512&amp;imh=288&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=true)
-## Testing skills with using GitHub
+![Header](https://i.pinimg.com/originals/0c/79/e9/0c79e9967826ecb605138ba79f65357a.jpg)
+## The professional Linux user:)
